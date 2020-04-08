@@ -1,3 +1,3 @@
-Nama : 
+Nama : Muhammad Ishak Ramadhan
 
-NIM  :
+NIM  : D121181019
